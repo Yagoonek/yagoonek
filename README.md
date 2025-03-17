@@ -2,10 +2,10 @@
 - 👀 I’m interested in: GAMEEEDEEEV
 - 🌱 I’m currently learning about making games in: unity
 - 💞️ I’m looking to collaborate on: nothing
-- 📫 How to reach me: idk maybe sigma town
+- 📫 How to reach me: idk maybe earth
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: earth is flat
 
 <!---
-Yagoonek/Yagoonek is a ✨ special ✨
+Yagoonek/Yagoonek is a ✨ special ✨ person
 --->
